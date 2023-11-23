@@ -1,1 +1,0 @@
-# kaplan-ahmet.github.io
